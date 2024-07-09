@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @maxonpushka
-- 👀 I’m interested in programming
-- 🌱 I’m currently learning c++
-- 📫 How to reach me :discord - SUperbatyareCK
+- 👀 I’m interested in programming and kill furry
+- 🌱 I’m currently learning c++(i have a bit knowledge lol)
+- 📫 How to reach me :discord - maxoneshkere
 - 😄 Pronouns: maxon
 - ⚡ Fun fact: америка сасат
 
